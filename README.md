@@ -20,5 +20,5 @@ The goal of this project is to build a robust digital presence for Gangiya Enter
 
 ## 📬 Contact Us
 For inquiries or collaborations:
-- **Email:** info@gangiyaenterprises.com 
+- **Email:** maashanti475.com 
 - **Location:** Gawan Giridih , India
